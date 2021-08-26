@@ -1,1 +1,1 @@
-![image](https://github.com/filipeGuerreiro/filipeGuerreiro/blob/main/loading.gif)
+![image](https://github.com/filipeGuerreiro/filipeGuerreiro/blob/main/wheel.gif)
